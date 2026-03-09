@@ -1,1 +1,1 @@
-It is beautiful, isn't it?
+It is wonderful, isn't it?
